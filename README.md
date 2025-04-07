@@ -1,2 +1,0 @@
-# proy-Final-POO
-SISE
